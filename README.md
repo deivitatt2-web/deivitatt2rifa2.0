@@ -1,1 +1,0 @@
-# deivitatt2rifa2.0
